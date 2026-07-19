@@ -123,10 +123,7 @@ Passionate about building intelligent systems that solve real-world problems thr
 
 http://www.linkedin.com/in/bhuvanesh-v
 
-🌐 **GitHub**
 
-https://github.com/Bhuvaneshx57
----
 
 ## 💡 Currently Working On
 
